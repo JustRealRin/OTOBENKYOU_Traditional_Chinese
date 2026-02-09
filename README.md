@@ -1,1 +1,1 @@
-© Copyright Rinnnnn Studio
+Copyright © Rinnnnn Studio
